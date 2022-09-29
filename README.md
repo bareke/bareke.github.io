@@ -1,2 +1,0 @@
-# bareke.github.io
-asd
